@@ -1,0 +1,2 @@
+# mangekyo
+naruto
